@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on innovative web applications, front-end projects, and any endeavor that combines creativity with impactful web solutions.
 
-📫 How to reach me: Feel free to drop me an email at nishantsharma3637@gmail or connect on LinkedIn Nishant Sharma to discuss ideas, projects, or opportunities.
+📫 How to reach me: Feel free to drop me an email at nishant.s49189@gmail or connect on LinkedIn Nishant Sharma to discuss ideas, projects, or opportunities.
 
 😄 Pronouns: He/Him
 
